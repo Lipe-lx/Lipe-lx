@@ -1,4 +1,4 @@
-### Talented AI prompter 🦾 | deep in web3 development 🌐 | Civil geotechnical engineer ⚙ | Human 👤
+## Deep in web3 development 🌐 | Civil geotechnical engineer ⚙ | Human 👤
 
 <div align="center">
   
